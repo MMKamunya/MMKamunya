@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @MMKamunya
+- 👋 Hi, I’m Mikaela
 - 👀 I’m interested in Programming and coding,Metaverse, AI and AR/VR.
 - 🌱 I’m currently learning Basic programming languages.
 - 💞️ I’m looking to collaborate on any project involving my interests.
